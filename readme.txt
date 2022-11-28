@@ -1,0 +1,1 @@
+Nå blir du hacket Clair, watch out!
